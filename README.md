@@ -13,7 +13,7 @@ Recommended Athens Restaurants
 * Casa del Toro, Xalandri
 * Mylolithos, Ampelokipoi
 * Nakama sushi bar, Kolonaki
-* Apperio,Cholargos
+* Aperio, Cholargos
 
 Recommended Weekend Trips
 =========================
